@@ -12,4 +12,4 @@ Beginner:
 
 Intermediate:
 
-All levels were completed by me
+1-8 levels were completed by me
